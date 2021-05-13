@@ -1,2 +1,0 @@
-### Valentine Danilov
-## CV
